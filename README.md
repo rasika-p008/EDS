@@ -1,1 +1,1 @@
-# EDS
+Video, Certificates, Lab Assignments
